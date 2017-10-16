@@ -19,3 +19,5 @@ Phone: (949) 726-1888
 [Instagram](https://www.instagram.com/barbarashangmd/)
 
 [SlideShare](https://www.slideshare.net/BarbaraShang/dr-barbara-shangs-3-tips-you-can-do-now-to-help-prevent-eye-strain)
+
+[Publication](http://clincancerres.aacrjournals.org/content/3/11/1943.short)
