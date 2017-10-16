@@ -1,6 +1,6 @@
 ## Welcome To Barbara Shang M.D.'s Personal Page
 
-This is Barbara Shang's personal web page. For her doctor website go here:
+This is Barbara Shang's personal web page. For her professional website go here:
 [DrBarbaraShang.com](http://www.drbarbarashang.com/)
 
 
