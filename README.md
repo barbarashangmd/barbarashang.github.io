@@ -3,7 +3,7 @@
 This is Barbara Shang's personal web page. For her professional website go here:
 [DrBarbaraShang.com](http://www.drbarbarashang.com/)
 
-Barbara Shang, MD is a practicing Ophthalmologist (Eye Specialist) in Irvine, CA. Dr. Shang graduated from University of California Los Angeles David Geffen School of Medicine in 1997 and has been in practice for 19 years. She currently practices at Pacific Summit Eye Medical Center and is affiliated with Hoag Hospital Newport Beach, Mission Hospital Regional Medical Center and Saddleback Memorial Medical Center Laguna Hills. Dr. Shang accepts multiple insurance plans including Aetna, Medicare and PacifiCare (UnitedHealthcare). In addition to English and Chinese, Dr. Shang's practice supports this language: Spanish.
+Barbara Shang, MD works as an Ophthalmologist (Eye Specialist) in Irvine, CA. Dr. Shang graduated from University of California Los Angeles David Geffen School of Medicine in 1997 and has been in practice for 19 years. She currently practices at OC Eye Center. Read more about her at her website: DrBarbaraShang.com
 
 
 ### Support or Contact
@@ -18,8 +18,6 @@ Phone: (949) 726-1888
 [LinkedIn](https://www.linkedin.com/in/barbara-shang-md/)
 
 [Instagram](https://www.instagram.com/barbarashangmd/)
-
-[SlideShare](https://www.slideshare.net/BarbaraShang/dr-barbara-shangs-3-tips-you-can-do-now-to-help-prevent-eye-strain)
 
 [Publication](http://clincancerres.aacrjournals.org/content/3/11/1943.short)
 
