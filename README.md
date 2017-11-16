@@ -2,6 +2,8 @@
 
 Barbara Shang, MD works as an Ophthalmologist (Eye Specialist) in Irvine, CA. Barbara Shang, M.D. graduated from University of California Los Angeles David Geffen School of Medicine in 1997 and has been in practice for 19 years. She currently practices at OC Eye Center. 
 
+Barbara Shang M.D. is also the contributing editor Essentials of Human Diseases and Conditions, a textbook "Perfectly tailored to the needs to today’s medical assistants, this unique text uses simple language and an abundance of learning features as it walks readers through the disease pathology of over 500 common patient conditions".
+
 This is Barbara Shang's personal web page. For her professional website go here:
 [DrBarbaraShang.com](http://www.drbarbarashang.com/)
 
