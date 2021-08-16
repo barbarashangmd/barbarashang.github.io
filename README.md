@@ -18,7 +18,7 @@ This is Barbara Shang's personal web page. For her professional website go here:
 
 
 
-Read more about her at her website: [DrBarbaraShang](https://www.md.com/doctor/barbara-shang-md)
+Read more about her on MD [DrBarbaraShang](https://www.md.com/doctor/barbara-shang-md)
 
 
 ### Support or Contact
